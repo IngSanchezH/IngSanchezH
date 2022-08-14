@@ -2,5 +2,5 @@
 - 👀 Me interesa conocer más del ámbito del desarrollo de aplicaciones
 - 🌱 Actualmente estoy aprendiendo varios emprendimiento y proyectos personales
 - 💞️ Busco colaborar en personas que les ama el desarrollo
-- 📫 Contactarme imagencreativo.com
+- 📫 Contacto imagencreativo.com
 
